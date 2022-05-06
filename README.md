@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @pupsyz
-- 👀 I’m interested in sports and tech
+- 👀 I’m interested in design, tech and sports
